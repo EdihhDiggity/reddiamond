@@ -1,1 +1,1 @@
-<h1>Eden Red Diamond Pro</h1>
+<h1>Eden Red Diamond Pro Sigma</h1>
